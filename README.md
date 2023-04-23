@@ -1,0 +1,1 @@
+# -N-C-Y-C-NH_CNTT1
